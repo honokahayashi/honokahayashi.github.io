@@ -5,3 +5,4 @@ I'm a graduate school student in Japan.
 I'm interested in English remedial education.
 I like sweets and flowers❀
 Nice to meet you:)
+![image](/IMG_0837.JPG)
