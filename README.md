@@ -15,4 +15,4 @@ Apr 2025~ Master student in Graduate School of International Media, Communicatio
 
 ## Contact
 **E-mail**: hayashi.honoka.q6@elms.hokudai.ac.jp  
-Feel free to contact me!
+Feel free to contact me🌱
