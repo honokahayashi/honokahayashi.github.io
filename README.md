@@ -6,7 +6,7 @@ Welcome to my homepage:)
 ## About Me
 **Name**: Honoka Hayashi  
 **Education**:  
-Apr 2021-Mar 2025, Hokkaido University, Japan, Bachelor of Humanities and Human Sciences  
+Apr 2021-Mar 2025 Hokkaido University, Japan, Bachelor of Humanities and Human Sciences  
 Apr 2025~ Master student in Graduate School of International Media, Communication, and Tourism Studies  
 **Major**: Second Language Acquisition  
 **Key Words**: Remedial Education, English Education, Empowerment  
@@ -15,4 +15,4 @@ Apr 2025~ Master student in Graduate School of International Media, Communicatio
 
 ## Contact
 **E-mail**: hayashi.honoka.q6@elms.hokudai.ac.jp  
-✉Feel free to contact me
+Feel free to contact me!
