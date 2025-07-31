@@ -1,6 +1,6 @@
 # honokahayashi.github.io
 
-Welcome to my homepage:)
+Special thanks for visiting my homepage!
 ![image](/IMG_0837.JPG)
 
 ## About Me
