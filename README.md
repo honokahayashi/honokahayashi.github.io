@@ -1,4 +1,3 @@
-# honokahayashi.github.io
 
 Special thanks for visiting my homepage!
 ![image](/IMG_0837.JPG)
